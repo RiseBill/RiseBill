@@ -1,0 +1,4 @@
+- 👋 Hi, I’m RiseBill
+- 👀 I’m interested in coding and football
+- 🌱 I’m currently learning AI for AIRFLY
+- 📫 1174868875@qq.com
